@@ -9,3 +9,6 @@ John „Johnny“ Christopher Depp II (* 9. Juni 1963 in Owensboro, Kentucky) is
 * 2007: Beste Darbietung (Pirates of the Caribbean – Fluch der Karibik 2)
 * 2008: Beste komödiantische Darbietung (Pirates of the Caribbean – Am Ende der Welt)
 * 2008: Bester Bösewicht (Sweeney Todd – Der teuflische Barbier aus der Fleet Street)
+
+Johnny Depp; Fernsehinterview mit Le Journal du cinéma in Frankreich, 1993:
+> And it wasn’t to around 1986 that I decided I should…that somehow it had become my career. And I should – learn. But…Can it be a need? It is at this point a need. But it could change, you know. I need to do it, um, I don’t know why but I feel the need to do it. I feel the need to create right now.
